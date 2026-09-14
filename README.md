@@ -12,7 +12,7 @@ I've got a few projects in my repositories, but my favorite is the **Hospital Ma
 
 I'm always looking to expand my knowledge, which currently involves competing in daily algorithmic challenges and diving into AI coursework.
 
-If you want to reach out, the best way to contact me is at **kmassoud@usf.edu**.
+If you want to reach out, the best way to connect with me is on [LinkedIn](https://www.linkedin.com/in/kmassoud/).
 
 **Fun Facts:**
 *   My hobbies include weightlifting, competitive Valorant, and building things
